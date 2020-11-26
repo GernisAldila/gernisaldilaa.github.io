@@ -1,1 +1,0 @@
-# gernisaldilaa.github.io
